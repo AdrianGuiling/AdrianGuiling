@@ -1,6 +1,6 @@
 
 
-<p align="left"> <img =[Aaaaaaaaaaaaaaaaaaaaaaaaaaa](https://github.com/user-attachments/assets/d01ee76b-4170-4cc1-a0eb-003cfa01de4c)
+<p align="left"> <img =[](https://github.com/user-attachments/assets/d01ee76b-4170-4cc1-a0eb-003cfa01de4c)
  width="250" height="250" />
 
 # About Me
