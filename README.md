@@ -1,4 +1,4 @@
-![/storage/emulated/0/Pictures/Picsart/Picsart_24-08-19_10-05-14-593.png](https://github.com/user-attachments/assets/f244159a-69d7-409b-9b1d-1efa69e80f0d)
+![](https://github.com/user-attachments/assets//storage/emulated/0/Pictures/Picsart/Picsart_24-08-19_10-05-14-593.png)
 
 # About Me
 
