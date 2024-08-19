@@ -21,19 +21,11 @@
 
 
 ## Achievements
-- Iskolar ng Biñan 🏅
-- Iskolar ng Laguna🏅
-- Iskolar ng CHED 🏅
-- Best in OJT Award 🏅
-- Best in Service Award 🏅
-- Employee of the month september 2018 🏅
-- 
+
+
 
 ## Hobbies and Interests
-- Basketball⛹️‍♂️
-- Vroom Vroom 🏍️
-- Jai Alai
+
 
 ## Motto
-**Don't wait for the perfect moment, instead take the moment and make it perfect.!**
 
