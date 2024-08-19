@@ -1,5 +1,6 @@
-![329533810_8676202152422124_8480363251395618892_n](https://github.com/user-attachments/assets/176f6e46-c214-43e5-960e-88c6dfa2772e)
-<img src="https://camo.githubusercontent.com/..." data-canonical-src="https://gyazo.com/eb5c5741b6a9a16c692170a41a49c858.png" width="200" height="400" />
+
+<img src="https://camo.githubusercontent.com/..." data-canonical-src=![329533810_8676202152422124_8480363251395618892_n](https://github.com/user-attachments/assets/d01ee76b-4170-4cc1-a0eb-003cfa01de4c)
+ width="250" height="250" />
 
 
 # About Me
