@@ -1,4 +1,4 @@
-![1x1](https://github.com/user-attachments/assets/09fe8b38-3d82-4577-8a8e-486b0d2cc126)
+![picture1](https://github.com/user-attachments/assets/09fe8b38-3d82-4577-8a8e-486b0d2cc126)
 
 
 # About Me
