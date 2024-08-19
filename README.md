@@ -1,4 +1,4 @@
-Loo![i](https://github.com/user-attachments/assets/09fe8b38-3d82-4577-8a8e-486b0d2cc126)
+![i](https://github.com/user-attachments/assets/09fe8b38-3d82-4577-8a8e-486b0d2cc126)
 
 
 # About Me
@@ -16,18 +16,17 @@ Loo![i](https://github.com/user-attachments/assets/09fe8b38-3d82-4577-8a8e-486b0
 
 
 ## Skills
-- a
-- 
-
+-
+-
 
 ## Achievements
-
-
+-
+-
 
 ## Hobbies and Interests
-- Sketch 
-- 
-## Motto
+- ✏️
+- 👾
 
+## Motto
 If you Believe everything you Dream will come true
 
