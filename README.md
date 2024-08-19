@@ -1,6 +1,6 @@
 
 
-<p align="left"> <img =[/storage/emulated/0/Pictures/Picsart/Picsart_24-08-19_10-05-14-593.png](https://github.com/user-attachments/assets/d01ee76b-4170-4cc1-a0eb-003cfa01de4c)
+<p align="left right"> <img =[/storage/emulated/0/Pictures/Picsart/Picsart_24-08-19_10-05-14-593.png](https://github.com/user-attachments/assets/d01ee76b-4170-4cc1-a0eb-003cfa01de4c)
  width="250" height="250" />
 
 # About Me
