@@ -1,5 +1,3 @@
-
-
 <p align="left right"> <img =[/storage/emulated/0/Pictures/Picsart/Picsart_24-08-19_10-05-14-593.png]
 
 # About Me
