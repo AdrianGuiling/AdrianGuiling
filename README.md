@@ -1,4 +1,6 @@
-![](https://github.com/user-attachments/assets//storage/emulated/0/Pictures/Picsart/Picsart_24-08-19_10-05-14-593.png)
+
+![image](https://github.com/user-attachments/assets/c0a08d5e-cd79-4117-a81f-24e01f365941) 
+
 
 # About Me
 
