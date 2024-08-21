@@ -1,6 +1,4 @@
 
-![cropped-asdasdsadsad](https://github.com/user-attachments/assets/9cfc7f21-9aff-4886-9031-da7fc8f8b488)
-
 # About Me
 
 ## Personal Information
