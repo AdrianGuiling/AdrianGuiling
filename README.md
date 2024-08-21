@@ -1,6 +1,5 @@
 
-![image](https://github.com/user-attachments/assets/c0a08d5e-cd79-4117-a81f-24e01f365941) 
-
+![cropped-asdasdsadsad](https://github.com/user-attachments/assets/9cfc7f21-9aff-4886-9031-da7fc8f8b488)
 
 # About Me
 
