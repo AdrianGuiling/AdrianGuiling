@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/13d99d7e-a34b-4ae0-8bdf-1fba4144de4d)
+
+
 
 # About Me
 
