@@ -16,7 +16,7 @@
 - **Institution:** La Consolacion College Biñan 
 
 
-## Skills
+## **Skills**
 -
 -
 
