@@ -16,18 +16,18 @@
 - **Institution:** La Consolacion College Biñan 
 
 
-## **Skills**
+# ***Skills***
 -
 -
 
-## Achievements
+# ***Achievements***
 -
 -
 
-## Hobbies and Interests
+# ***Hobbies and Interests***
 - ✏️
 - 👾
 
-## Motto
+# ****Motto****
 # ***If you Believe everything you Dream will come true***
 
